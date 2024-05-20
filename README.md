@@ -1,7 +1,8 @@
 ***
 <h5 align="center">
 
-![Untitled143_20240520133138](https://github.com/DENDRO-LEAFS/DENDRO-LEAFS/assets/170091622/e853f22f-3c99-4bcb-8543-ed4efa814d02)
+![Untitled145_20240520141336](https://github.com/DENDRO-LEAFS/DENDRO-LEAFS/assets/170091622/c223707c-7cab-40ba-8a19-84b94eb86320)
+
 
 ![Untitled141_20240520130726](https://github.com/DENDRO-LEAFS/DENDRO-LEAFS/assets/170091622/dfe61b88-40c3-4a33-abb3-6f451c6ffbd9)
 
@@ -13,7 +14,7 @@
 
 <p>
 
-<align="center">
+<h4 align="center">
 $\textcolor{white}{}$ㅤ ㅤhe , himㅤ ㅤ $\textcolor{grey}{FILIPINO}$
 </h4> 
 
