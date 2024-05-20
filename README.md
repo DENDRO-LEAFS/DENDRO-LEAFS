@@ -17,8 +17,7 @@ $\textcolor{white}{}$ㅤ ㅤhe , himㅤ ㅤ $\textcolor{green}{FILIPINO}$
 ![al haitham pfp](https://github.com/DENDRO-LEAFS/dendroleaf/assets/170091622/dc56a441-321c-41c9-8be3-a8fb90d24f29)</h5>  
 <h4 align="center">
 
-  __check socials for info__
-
+  __c+h freely ,, sign my retrospring!__
 
 
 
