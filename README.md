@@ -7,7 +7,7 @@
 ![Untitled141_20240520130726](https://github.com/DENDRO-LEAFS/DENDRO-LEAFS/assets/170091622/dfe61b88-40c3-4a33-abb3-6f451c6ffbd9)
 
 
-``we both like apple cider.``
+`` "have we met?" ``
 
 
 <h4 align="center">   
